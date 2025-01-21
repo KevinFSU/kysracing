@@ -1,4 +1,4 @@
-# Welcome to KYS Racing
+# CHARLESTON DRY ICE BLASTING
 
 At **KYS Racing**, we believe life is too short to drive dirty. Whether you're here to restore your car’s dignity or slap our unapologetically bold logo on your chest, we’ve got you covered.
 
